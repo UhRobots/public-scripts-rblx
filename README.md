@@ -4,3 +4,7 @@
 
 
 PLEASE SUPPORT ME!!!!!!!!
+
+
+
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/s/342d09616a)
